@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cristian20 
+- 👋 Hi, I’m @Cristian17 
 - 👀 I’m interested in aprender sobre programacion
 - 🌱 I’m currently learning programación wed
 - 💞️ I’m looking to collaborate on lo que pueda 
